@@ -4,7 +4,7 @@
 
 ## Overview
 
-![logic-pro-dashboard](https://cdn.dlcompare.com/others_jpg/upload/news/image/the-popularity-of-r-e-p-o-is-off-88634137-image-88634100.jpg.webp)
+![logic-pro-dashboard](https://avatars.mds.yandex.net/i?id=cd168cd30fe35ab00ac94d5228fe720f61103c04-3481291-images-thumbs&n=13)
 
 ## Features
 
